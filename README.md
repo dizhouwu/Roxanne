@@ -1,2 +1,2 @@
 # Roxanne
-A name would forever carry special meaning to me.
+A name would forever be preserved in the fond memory.
